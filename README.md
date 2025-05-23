@@ -37,7 +37,7 @@ If you sign up through my link, I’ll hook you up with:
 📦 **Affiliate Starter Toolkit** – Includes my traffic checklist, lead magnet, and email swipes  
 🚀 **Private Support Access** – You’ll get priority replies and weekly Q&A access
 
-👉 Get Access Here: [tedspath.com/ambassador](https://tedspath.com/ambassador)
+👉 Get Access Here: [tedspath.com/clickbank-super-funnel](https://tedspath.com/clickbank-super-funnel)
 
 ---
 
